@@ -1,1 +1,1 @@
-# Segunda dos Clássicos
+# Terça dos Clássicos
